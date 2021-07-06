@@ -2,4 +2,4 @@ Até o momento, o curso tem sido um grande desafio para mim. Mas conseguir fazer
 
 Obrigada pela oportunidade pessoal!
 
-Fazendo uma alteração para marca na linha do tempo.
+Alteração para linha do tempo
